@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Frameworks, Courses**
 - 📫 How to reach me: **immaredddysuprabathreddy@gmail.com**
-- ⚡ Fun fact: **I am serious**
+- ⚡ Fun fact: **I am not serious**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
